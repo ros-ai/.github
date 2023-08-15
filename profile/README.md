@@ -4,4 +4,4 @@
 🤝 Any contributions are welcome 
 
 ## Links
-💬 [Discord](https://discord.gg/tYnfQTmP)
+💬 [Discord](https://discord.gg/N64xed3Vbn)
